@@ -18,10 +18,6 @@ Possible lastname is Steininger, but its most likely inaccurate, will follow up 
 
 PRE "presale" Instagram: llinkanh
 
-Accurate information: Knows kewinoart, and has been at the tattoo studio several times.
-https://www.instagram.com/kewinoart/
-Address of tattoo studio: Stockholm, Sweden, GAMLA STAN, Tyska brinken 32 by Kevin/Kewinoart
-
 Picture of his hand.
 https://prnt.sc/xowlzi
 
