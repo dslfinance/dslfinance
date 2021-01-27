@@ -23,10 +23,11 @@ https://www.instagram.com/kewinoart/
 
 
 Picture of his hand, dont ask how we got it.
-![HAND](dsl/finance/dslfinance/DOX/HAND.jpg?raw=true "HAND")
+https://prnt.sc/xowlzi
 
 -Somewhere in close proximity to Stockholm and/or inside the city-
-![Alt text](https://prnt.sc/xox2op "Possible train station/bus station")
+ Photo taken by "Linus" 25th of January 2021, 17:21.
+https://prnt.sc/xox2op
 
 CONTACT EMAIL: DSLFinance@protonmail.com
 
