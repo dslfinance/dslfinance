@@ -8,7 +8,21 @@ Token Distribution Model
 Roadmap is in construction.
 
 Website: https://dsl.finance/
-Telegram: Https://t.me/DSLcommunity
+
+  POSTPONED due to our a *Marketing agent* hosting his own "presale" without team consent.
 
 
-Staking Contract ETA 28 January
+DOX bounty : 20 Thousand $ FIAT/ETH - whichever pleases you.
+Lives somewhere in stockholm under the alias Linus and/or William/Alfred.
+Possible lastname is Steininger, but its most likely inaccurate, will follow up on it.
+
+PRE "presale" Instagram: llinkanh
+
+Accurate information: Knows kewinoart, and has been at the tattoo studio several times.
+
+Picture of his hand, dont ask how we got it.
+https://prnt.sc/xowlzi
+
+CONTACT EMAIL: DSLFinance@protonmail.com
+
+Staking Contract ETA: POSTPONED.
