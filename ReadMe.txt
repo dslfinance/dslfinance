@@ -12,17 +12,17 @@ Website: https://dsl.finance/
   POSTPONED due to our a *Marketing agent* hosting his own "presale" without team consent.
 
 
-DOX bounty : 20 Thousand $ FIAT/ETH - whichever pleases you.
-Lives somewhere in Stockholm under the alias Linus and/or William/Alfred.
+DOX bounty : 10-20 Thousand $ FIAT/ETH - Depending on how close to accurate your information is.
+Lives somewhere in Stockholm under the alias Linus/Linkan/llinkanh/linkanhhhh and/or William/Alfred.
 Possible lastname is Steininger, but its most likely inaccurate, will follow up on it.
 
 PRE "presale" Instagram: llinkanh
 
 Accurate information: Knows kewinoart, and has been at the tattoo studio several times.
 https://www.instagram.com/kewinoart/
+Address of tattoo studio: Stockholm, Sweden, GAMLA STAN, Tyska brinken 32 by Kevin/Kewinoart
 
-
-Picture of his hand, dont ask how we got it.
+Picture of his hand.
 https://prnt.sc/xowlzi
 
 -Somewhere in close proximity to Stockholm and/or inside the city-
