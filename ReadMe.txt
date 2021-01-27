@@ -23,7 +23,10 @@ https://www.instagram.com/kewinoart/
 
 
 Picture of his hand, dont ask how we got it.
-https://prnt.sc/xowlzi
+![Alt text](https://prnt.sc/xowlzi "HAND")
+
+-Somewhere in close proximity to Stockholm and/or inside the city-
+![Alt text](https://prnt.sc/xox2op "Possible train station/bus station")
 
 CONTACT EMAIL: DSLFinance@protonmail.com
 
