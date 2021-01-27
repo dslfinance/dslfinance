@@ -10,7 +10,7 @@ Roadmap is in construction.
 Website: https://dsl.finance/
 
   POSTPONED due to our a *Marketing agent* hosting his own "presale" without team consent.
-
+                            (Without access to token wallet)
 
 DOX bounty : 10-20 Thousand $ FIAT/ETH - Depending on how close to accurate your information is.
 Lives somewhere in Stockholm under the alias Linus/Linkan/llinkanh/linkanhhhh and/or William/Alfred.
