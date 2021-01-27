@@ -13,16 +13,20 @@ Website: https://dsl.finance/
 
 
 DOX bounty : 20 Thousand $ FIAT/ETH - whichever pleases you.
-Lives somewhere in stockholm under the alias Linus and/or William/Alfred.
+Lives somewhere in Stockholm under the alias Linus and/or William/Alfred.
 Possible lastname is Steininger, but its most likely inaccurate, will follow up on it.
 
 PRE "presale" Instagram: llinkanh
 
 Accurate information: Knows kewinoart, and has been at the tattoo studio several times.
+https://www.instagram.com/kewinoart/
+
 
 Picture of his hand, dont ask how we got it.
 https://prnt.sc/xowlzi
 
 CONTACT EMAIL: DSLFinance@protonmail.com
+
+Reward is given to the person being able to provide us with the correct information of his whereabouts.
 
 Staking Contract ETA: POSTPONED.
