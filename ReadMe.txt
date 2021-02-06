@@ -19,4 +19,27 @@ Fully functioning stake contract ETA: 11th February.
 
 
 
+Presale Distribution
+
+
+1800 Tokens for sale, at a rate of 1 eth = 30 tokens.
+
+Uniswap listing price will be 1 eth = 27 tokens.
+
+100% OF deposited ETHEREUM is pooled.
+
+ALL unsold tokens will burn.
+
+30% of Liquidity provider tokens gets airdropped fair share to top 10 holders, locked in stake contract for 3 months.
+
+When presale ends, (DSL) tokens are allocated in the correct amount to those who bought into the presale, using multisender..
+
+Hardcap: 60 ETH
+SoftCap: 15 ETH
+
+Presale address : 0x19b8E26a46683c18001Bd6A334dc3a46ab5C14C5
+
+Presale ends 9th of Februrary.
+
+
 
